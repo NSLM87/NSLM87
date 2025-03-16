@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NSLM87
-- 👀 I’m interested in ... Webappdev ... GTA Mods ... Cyrpto Mining ...
+- 👀 I’m interested in ... Webappdev ... Bots ... GTA Mods ... Cyrpto Mining ...
 - 🌱 I’m currently learning ...python
 - 💞️ I’m not looking to collaborate!
 - 📫 How to reach me ... ->"3wg3dDQqGU" if you find out.
